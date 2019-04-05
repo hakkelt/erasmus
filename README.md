@@ -1,2 +1,0 @@
-# erasmus
-Erasmusos élmények Münchenben
